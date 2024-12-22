@@ -16,6 +16,8 @@
 
 [ing6](https://cdn.eba.gov.tr/yardimcikaynaklar/2024/12/ornek1_2_1/ing6.pdf)
 
+[6 karışık (YZ içerir)](rockeymen.site)
+
 -----------------|   Yusuf Tekin İstifa   |-----------------------
 
 [yusuftekinistifa.click](yusuftekinistifa.click)
