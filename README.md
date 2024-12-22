@@ -1,1 +1,10 @@
-# 6.sinif-2024-2025-1.d-nem-2.yaz-l-al-ma
+# 6. sınıf 2024-2025 1.dönem 2.yazılı
+
+> Yararlandığımız Kaynaklar
+
+
+
+
+-----------------|   Yusuf Tekin İstifa   |-----------------------
+
+yusuftekinistifa.click
