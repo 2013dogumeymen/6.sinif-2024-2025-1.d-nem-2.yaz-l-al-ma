@@ -12,4 +12,4 @@
 
 -----------------|   Yusuf Tekin İstifa   |-----------------------
 
-yusuftekinistifa.click
+[yusuftekinistifa.click](yusuftekinistifa.click
