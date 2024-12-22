@@ -16,7 +16,7 @@
 
 [ing6](https://cdn.eba.gov.tr/yardimcikaynaklar/2024/12/ornek1_2_1/ing6.pdf)
 
-[6 karışık (YZ içerir)](rockeymen.site)
+[6 karışık (YZ içerir)](https://github.com/2013dogumeymen/6.sinif-2024-2025-1.d-nem-2.yaz-l-al-ma/blob/701294f7bc8831fe2beb53ec9d98883cff24d17c/6_sinif_karisik_sorular_utf8.pdf)
 
 -----------------|   Yusuf Tekin İstifa   |-----------------------
 
