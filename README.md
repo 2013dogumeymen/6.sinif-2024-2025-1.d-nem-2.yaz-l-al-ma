@@ -14,6 +14,8 @@
 
 [dkab6](https://cdn.eba.gov.tr/yardimcikaynaklar/2024/12/ornek1_2_1/dkab6.pdf)
 
+[ing6](https://cdn.eba.gov.tr/yardimcikaynaklar/2024/12/ornek1_2_1/ing6.pdf)
+
 -----------------|   Yusuf Tekin İstifa   |-----------------------
 
 [yusuftekinistifa.click](yusuftekinistifa.click)
