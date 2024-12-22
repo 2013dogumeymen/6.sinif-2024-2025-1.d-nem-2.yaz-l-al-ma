@@ -11,6 +11,7 @@
 [fen6](https://cdn.eba.gov.tr/yardimcikaynaklar/2024/12/ornek1_2_1/fen6.pdf)
 
 [sos6](https://cdn.eba.gov.tr/yardimcikaynaklar/2024/12/ornek1_2_1/sos6.pdf)
+
 -----------------|   Yusuf Tekin İstifa   |-----------------------
 
 [yusuftekinistifa.click](yusuftekinistifa.click)
