@@ -1,0 +1,1 @@
+# 6.sinif-2024-2025-1.d-nem-2.yaz-l-al-ma
